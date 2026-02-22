@@ -3,3 +3,8 @@
 This research paper is shared as a preprint.
 All rights reserved by the author.
 Commercial reuse or redistribution is prohibited.
+
+
+for any queries : 
+
+contact : mebishnusahu0595@gmail.com
